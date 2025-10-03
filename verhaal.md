@@ -12,5 +12,5 @@ Het ultieme doel voor veel spelers is het vinden van \*\*The End\*\* en het vers
 
 Daarnaast zijn er oneindig veel persoonlijke verhalen mogelijk, dankzij creativiteit en mods.  
 
-
+De wereld heeft een verborgen geschiedenis. Strongholds en het End-portaal laten aanwijzingen zien over de Enderman en de oorsprong van het spel.
 
